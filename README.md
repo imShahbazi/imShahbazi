@@ -6,4 +6,4 @@
 
 instagram : @im_shahbazi \
 x : @im_shahbazi \
-Email : im.ali.shahbazi@gmail.com
+Email : im.ali.shahbazi@outlook.com
